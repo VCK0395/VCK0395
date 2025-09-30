@@ -3,7 +3,7 @@ Victor Kalu
 and AI/MLOps | Data Scientist (DS) / Machine Learning (ML) / Artificial Intelligence (AI) / AWS Cloud Certified
 
 I’m currently learning The latest AI infomation.
-Linkedln is available [here](https://www.linkedin.com/in/victor-kalu-jr-a37a64200/) as well as email address vck0395@yahoo.com.
+Email address vck0395@yahoo.com.
 
 
 
